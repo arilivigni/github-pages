@@ -1,17 +1,7 @@
 ---
-title: Ari LiVigni - The User Manual
+title: 🤘 MetalG33k Blog 🤘
 ---
 
-## Professional Passions and Interests
+## Caught in a Mosh
 
-## AFK
-
-### Sports
-
-### Movies
-
-It is hard to pick one movie. I will say I look for movies that are a bit eccentric, push boundaries, and have a very unique plot. 
-
-### Music
-
-### Hobbies
+Yes it is an Anthrax song, but it is really more than just that.
